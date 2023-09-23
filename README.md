@@ -1,0 +1,1 @@
+# HBR-Speculation-Fundamentals
